@@ -1,0 +1,2 @@
+# Banall
+A BAN ALL REPO MADE BY TEAM APEX
